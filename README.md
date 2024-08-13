@@ -1,1 +1,1 @@
-![](https://media.tenor.com/FYsjyvi3C7kAAAAj/rupert-cat.gif)
+![](https://media.tenor.com/HoXg2JXLbisAAAAj/capple.gif)
